@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sunil A
-- 👀 I’m interested in 
+- 👀 I’m interested in Exploring and learning innovative insights.
 - 🌱 I’m currently learning Master of Business Administration in Business Analytics.
 - 💞️ I’m looking to collaborate on Business Intelligence Projects.
 - 📫 How to reach me sunilmba29@gmail.com
